@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @mballs-gay
-- 👀 I like girls i swear
-- 🌱 I’m dieing
+- 👋 Hi, I’m @WEEEEEEEe
+- 👀 I like- 🌱 I’m dieing
 - 💞️ I’m single
-- 📫 dont talk to me
+-  talk to me
 - 😄 Pronouns:he/him
 - ⚡ Fun fact:i have a bomb
 
