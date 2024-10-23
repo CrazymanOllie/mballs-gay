@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mballs-gay
-- 👀 I like girls i swear
+- 👀 I like girls i dont swear
 - 🌱 I’m dieing
 - 💞️ mine
 - 📫 dont talk to me
